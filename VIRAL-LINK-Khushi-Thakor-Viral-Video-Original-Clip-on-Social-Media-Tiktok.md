@@ -1,4 +1,4 @@
-## [~VIRAL~INSTAGRAM]Khushi Thakor Viral Video Original Clip on Social Media Tiktok #3769
+## [~VIRAL~LINK]Khushi Thakor Viral Video Original Clip on Social Media Tiktok #3769
 
 18 seconds ago
 
